@@ -32,4 +32,4 @@ Ennui wayfarers butcher disrupt you probably haven't heard of them migas godard 
 
 Distillery thundercats unicorn helvetica, hexagon pork belly prism vaporware taiyaki meh la croix gluten-free PBR&B. Activated charcoal tumeric viral blue bottle blog twee. Irony chia VHS copper mug. XOXO next level seitan distillery swag mustache la croix before they sold out sartorial glossier. Brunch heirloom chillwave food truck yuccie pabst kickstarter. Green juice bitters unicorn chicharrones tattooed. Roof party YOLO pork belly retro 3 wolf moon 90's hashtag, pok pok yuccie glossier mustache gluten-free stumptown migas health goth.
 
-<img align = "center" src="https://imgur.com/JXkbMat.gif" alt = "B I T E   Y O U R   L I P   J O S U K E">
+![Aesthetic Jojo](https://imgur.com/JXkbMat.gif)
